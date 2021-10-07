@@ -1,2 +1,2 @@
-# ITRI projects by Dong-You-Jhong
+# ITRI projects by Dong-You,Jhong
 
